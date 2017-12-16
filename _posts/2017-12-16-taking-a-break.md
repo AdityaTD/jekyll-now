@@ -5,3 +5,8 @@ So as many of you may know, I am a school going student and I am currently in 11
 I also wanted to talk about the recent events such as the repeal of Net Neautrality, it really is a very bad thing that it got repealed by a 3-2 vote but there is still hope, contact your local congressmen to make sure they don’t allow net neautrality to be repealed in the veto which will be happening in about 27 days from the time of posting this post. You can find more information about how to do so at [BattleForTheNet](BattleForTheNet.com). Oh and I hope it doesn't have any impact on other countries who like to copy America, Net Neautrality is very important for the whole world.
 
 I wish eveeryone of you happy holidays and a Merry Christmas in advance, have a good one everyone and stay safe. Also Smile More and Stay Positive. Much love guys, peace.
+
+Edit: I will still be around on my social media and Discord but not as active as I used to be.
+AdityaTD's Discord: [Click Here](http://discord.gg/Assyc6B)
+PenguBot's Discord: [Click Here](http://discord.gg/u8WYw5r)
+The Neighborhood Discord: [Click Here](http://discord.gg/pykh8r8)
