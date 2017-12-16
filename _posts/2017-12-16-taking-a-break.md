@@ -7,6 +7,7 @@ I also wanted to talk about the recent events such as the repeal of Net Neautral
 I wish eveeryone of you happy holidays and a Merry Christmas in advance, have a good one everyone and stay safe. Also Smile More and Stay Positive. Much love guys, peace.
 
 Edit: I will still be around on my social media and Discord but not as active as I used to be.
+
 AdityaTD's Discord: [Click Here](http://discord.gg/Assyc6B)
 PenguBot's Discord: [Click Here](http://discord.gg/u8WYw5r)
 The Neighborhood Discord: [Click Here](http://discord.gg/pykh8r8)
