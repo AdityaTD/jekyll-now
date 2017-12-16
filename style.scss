@@ -21,6 +21,7 @@ body {
 	background: $white;
   font: 18px/1.4 $helvetica;
   color: $darkGray;
+  -webkit-transition-duration: 0.4s;
 }
 
 .container {
