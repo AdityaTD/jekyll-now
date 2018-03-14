@@ -5,7 +5,7 @@ Anyways in the time of not posting, I joined SevenChapters as a Lead Designer, g
 I got a new Computer, yes what's so special about that? It's not a laptop finally haha, after like 10 years of using Laptops I finally got a real machine which is an absolute beast, it's rocking an Asus GTX 1060 3GB, Intel i5 8400, 8GB Ram, 1TB HDD, 120GB SSD and much more! It's clearly my dream PC right here and I haven't even fully explored it yet!
 
 Here's a picture of that beast:
-[new-pc](https://cdn.discordapp.com/attachments/409339278456258560/418056427215519764/IMG-20180227-WA0009.jpeg)
+![new-pc](https://cdn.discordapp.com/attachments/409339278456258560/418056427215519764/IMG-20180227-WA0009.jpeg)
 
 Other than that I'm working on a few projects of mine and to stay updated you should follow me on Twitter as I am very very active there.
 That's all for now guys, thanks for the support and I'll cya guys later! Peace
